@@ -10,4 +10,4 @@ Below is a brief about me:
 
 📫 Reach me here: yashbeersingh42@gmail.com
 
-🔗 Connect me on [LinkedIn](https://www.linkedin.com/in/yashbeer-singh/)
+🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/yashbeer-singh/)
